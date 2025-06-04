@@ -1,0 +1,2 @@
+# VibeCoding
+Just vibing out
